@@ -1,4 +1,4 @@
-### Olá, eu sou o Lucas Lacerda 🙂
+### Opaa, tudo certo? Eu sou o Lucas!🙂
 
 - 🔭 Atualmente trabalho como Controlador de Acesso, mas estou à procura da primeira oportunidade na área de TI :)
 - 🌱 Cursando Superior de técnologia em Análise e Desenvolvimento de Sistemas
